@@ -1,16 +1,24 @@
-## Hi there 👋
+</div>
 
-<!--
-**equaltoheaven/equaltoheaven** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<div align="center">
+  
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<sub>THIS IS A BIIGG WIPP sorry im lazy.</sub> 
+
+![cobacou](https://files.catbox.moe/e0sx0b.png)
+
+
+
+
+
+
+
+atabook wipㅤㅤㅤstraw wip
+
+<sub>art by cobacou</sub> 
+
+<sub>NO DNI besides the basic eveeryone knows about, just dont be a weirdo. DO NOT copy my skins, ask for inspo please.</sub> 
+
+
+</div>
