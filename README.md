@@ -6,7 +6,7 @@
 
 <sub>THIS IS A BIIGG WIPP sorry im lazy.</sub> 
 
-![cobacou](https://files.catbox.moe/e0sx0b.png)
+![cobacou](https://files.catbox.moe/hwfzpx.png)
 
 
 
