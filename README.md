@@ -16,7 +16,6 @@
 
 atabook wipㅤㅤㅤstraw wip
 
-<sub>art by cobacou</sub> 
 
 <sub>NO DNI besides the basic eveeryone knows about, just dont be a weirdo. DO NOT copy my skins, ask for inspo please.</sub> 
 
